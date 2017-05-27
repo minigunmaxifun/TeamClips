@@ -18,8 +18,4 @@ Je complèterai si besoin, n'hésitez pas pour les suggestions !
 
 Merci !
 
-  Kiwi wi-wi  
-                                          
-  
-
-	Yo !
+Kiwi wi-wi  
